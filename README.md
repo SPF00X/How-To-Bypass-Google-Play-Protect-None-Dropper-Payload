@@ -1,5 +1,5 @@
 # How-To-Bypass-Google-Play-Protect-None-Dropper-Payload
-How To Bypass Google Play Protect None / Dropper Payload.
+How To Bypass Google Play Protect None / Dropper Payload
 
 
 ✅PM : https://t.me/SPF00X
